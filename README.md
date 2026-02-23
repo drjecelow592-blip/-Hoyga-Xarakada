@@ -1,1 +1,1 @@
-# -Hoyga-Xarakada
+# Hoyga-Xarakada
